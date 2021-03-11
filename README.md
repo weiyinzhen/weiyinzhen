@@ -1,4 +1,4 @@
-# -嘿嘿嘿，there there there
+# -嘿嘿嘿，there
 
 hi👋，welcome to my homepage。     
 👀：I'm going to university in Xinxiang college。
