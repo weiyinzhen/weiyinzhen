@@ -1,7 +1,7 @@
 # -嘿嘿嘿，there
 
 hi👋，welcome to my homepage。     
-👀：I'm going to university in Xinxiang college。
+👀：I have graduated from Xinxiang University with a bachelor's degree
 
 ☺️：I'm reading some famous books recently, like the dream 
     of Red Mansions and Mark Twain selected novels。
